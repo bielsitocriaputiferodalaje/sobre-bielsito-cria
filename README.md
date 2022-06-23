@@ -1,0 +1,5 @@
+- 🌊​Olá meu nome é Gabriel Ereno mas pode me chamar de flavin ou bielsito
+- 🌊​Meu contato é gabriel.ereno@escola.pr.gov.br
+- 🌊​Minha meta é ir pro profissional e ser melhor amigo do neymar
+- 🌊​Estou aprendendo a programar
+- 🌊​Moro em Londrina na gleba
